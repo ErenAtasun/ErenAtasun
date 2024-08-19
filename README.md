@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Unity**
 
-- 📫 How to reach me **atasun35@gmail.com**
+- 📫 How to reach me **atasun35@gmail.coo**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
